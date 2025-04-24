@@ -1,1 +1,1 @@
-# .github
+# Please, POLAKO
