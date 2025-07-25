@@ -1,6 +1,8 @@
 ## Hi there 👋
-### Please, POLAKO
+### Please, POLAKO https://polako.cloud/en
+#### We are passionate and professional team of developers, managers, designers and marketologists. 
 
+#### Our target is to improve your business without losses of money, energy and power. Contact us via polako.solutions@gmail.com if you need a team that will solve your problems fast and good.
 <!--
 
 **Here are some ideas to get you started:**
